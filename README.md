@@ -16,5 +16,5 @@ WITHOUT THE DATABASE THE PROJECT WON'T RUN.
 
 ***** edmundquainoo3018@gmail.com *****
 
-***** LEAVE A COMMENT IF YOU LOVED OUR WORK *****
+***** LEAVE A COMMENT IF YOU LOVED My WORK *****
 
